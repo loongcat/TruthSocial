@@ -1,4 +1,4 @@
-**关于Truth Social账号，可自行注册或直接购买-><a href="https://xiaohu837.net/buy/1" rel="nofollow">传送门点✈这里</a>**
+**关于Truth Social账号，可自行注册或直接购买-><a href="https://xiaohu837.net/buy/17" rel="nofollow">传送门点✈这里</a>**
 <br>
 <br>
 ---
@@ -64,4 +64,4 @@
 
 
 ---
-**关于Truth Social账号，可自行注册或直接购买-><a href="https://xiaohu837.net/buy/1" rel="nofollow">传送门点✈这里</a>**
+**关于Truth Social账号，可自行注册或直接购买-><a href="https://xiaohu837.net/buy/17" rel="nofollow">传送门点✈这里</a>**
